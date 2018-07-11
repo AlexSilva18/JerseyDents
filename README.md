@@ -1,2 +1,2 @@
 # JerseyDents
-Jerseydents.com - Jersey Dents LLC, Paintless Dent Repair
+http://jerseydents.com - Jersey Dents LLC, Paintless Dent Repair
